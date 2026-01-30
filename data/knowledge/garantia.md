@@ -1,0 +1,1 @@
+Cada cartel cuenta con una garantía de 3 meses a 5 meses.
